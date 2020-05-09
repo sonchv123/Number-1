@@ -1,1 +1,11 @@
 sasa
+dw
+q
+qd
+q
+dwq
+d
+wqd
+d
+d
+wq
